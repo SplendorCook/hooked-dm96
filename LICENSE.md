@@ -1,4 +1,4 @@
-#  
+#  instant Script for hooked is the best hooked Script, featuring auto-upgrade and speed. Safe and powerful for all your needs.
 
 
 
